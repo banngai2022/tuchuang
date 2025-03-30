@@ -8,7 +8,7 @@
 诸神的话，目前参与不多，主要是《夏目友人帐 柒》
 https://dmhy.org/topics/list?keyword=natsume+%E8%AF%B8%E7%A5%9E
 
-个人作品（日听/日文整理+翻译校对打轴后期一条龙）：https://www.dmhy.org/topics/list/user_id/778247
+### 个人作品（日听/日文整理+翻译校对打轴后期一条龙）：https://www.dmhy.org/topics/list/user_id/778247
 基本是中日双语字幕。目前在做《夏娜》，也会看情况和心情做点别的
 其他社交平台的ID也是@晚街与灯，以前做过的东西要的话也可以搜到
 
