@@ -16,7 +16,7 @@ https://dmhy.org/topics/list?keyword=natsume+%E8%AF%B8%E7%A5%9E
 
 其他社交平台的ID也是@晚街与灯，以前做过的东西要的话也可以搜到
 
-![](https://github.com/banngai2022/tuchuang/blob/master/img/%E6%B5%B7%E6%8A%A5-%E7%AE%80%E4%BD%93_2.png)
+![](https://github.com/banngai2022/tuchuang/blob/master/img/20250818182218.png)
 
 三次元的话，比较失败，但也不想倒太多苦水，就说点抽象的，当个谜语人了
 - “为一方理想而抛却其他，离开上家。能否到达理想之地未知，但我至少愿意努力”
